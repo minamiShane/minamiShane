@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @minamiShane
-- 👀 I’m interested in Programming, Digital Painting, Graphic Designing.
+- 👀 I’m interested in Programming, Digital Painting, Graphic Design.
 - 🌱 I’m currently learning Java, C# and Python.
 - 💞️ I’m looking to collaborate on my favorite person.
 - 📫 How to reach me, nepomucenoshanerey@gmail.com, my Facebook is Shane Nepomuceno
